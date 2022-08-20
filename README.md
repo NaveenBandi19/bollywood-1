@@ -8,3 +8,6 @@ manikan is hero
 this is git file.
 Raj anna is a king of Andhra not Jagan
 
+Next CM Nara Chandra Babu Naidu
+Jai  Ballaya Babbu.
+
